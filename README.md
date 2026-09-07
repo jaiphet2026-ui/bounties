@@ -1,5 +1,5 @@
 # Bounties
-
+copyright ©️ 2026 cpwcommonbugs secret use 3rd light soft traffict.raw issues untraditional mart.synonim reserve alright if hcaptcha is (re)hcaptcha validity allowance severed jams.yalm
 
 # hCaptcha Bug Bounty Program
 
